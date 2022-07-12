@@ -1,0 +1,2 @@
+# ansormed-figma
+ Amaliyot
